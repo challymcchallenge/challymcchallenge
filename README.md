@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chally-Mc-Challenge
-- 👀 I’m always learning new technologies..
-- 🌱 I’m working hard to develop my -AI & CyberSecurity- programming skills.
+- 👀 I’m always learning new technologies.
+- 🌱 I’m interested to develop my -AI, Web 3.0 & CyberSecurity- programming skills.
 - 💞️ IF you're looking to expand your network and connect with other Talented Coders and Creative Thinkers, I might be of help...
 - 📫 If you're looking for a partner, mentor or financial support to build an MVP, I'm the right person to support you.
 - Do you have LinkedIn? Let's say Hi to eachother there.
