@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @challymcchallenge
-- 👀 I’m interested in AI & CyberSecurity Scripts.
-- 🌱 I’m currently learning all kinds of stuff.
-- 💞️ I’m looking to collaborate with high quality people.
+- 👋 Hi, I’m @Chally-Mc-Challenge
+- 👀 I’m always learning.
+- 🌱 I’m working hard to develop my AI & CyberSecurity programming skills.
+- 💞️ I’m also looking to collaborate and mee with high quality people.
 - 📫 Let's connect on LinkedIn.
 
 <!---
