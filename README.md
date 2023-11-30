@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @Chally-Mc-Challenge
-- 👀 I’m always learning new technologies.
-- 🌱 I’m actively developing my -AI, Web 3.0 & CyberSecurity- programming skills.
-- 💞️ Are you looking to expand your network and connect with other Talented Coders and Creative Thinkers ? I might be of help.
-- 📫 Are you looking for a mentor, team-member or financial support to build your MVP ? I'm the right person to chat with.
-- LinkedIn? Let's say Hi to eachother there.
-- WhatsApp? Me too. +46720123475
+- 👋 Hi, I’m @Chally-Mc-Challenge. Thanks for checking my Github profile.
+- 👀 About me: I love networking with Smart People, and would love to hear your story, what you do and what you're passioned about.
+- 💕 I have access to a network of SMEs,Talented proffesionals & Capital. My best skill is Creative Problem Solving.  
+- 📫 If you need support, advice or you're bothered by a difficult problem , contact me! I'm one message away 😉
+- 🔗 LinkedIn? Let's say Hi there!
+- 🤙 WhatsApp? Me too. +46720123475
