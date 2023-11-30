@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chally-Mc-Challenge. Thanks for checking my Github profile.
 - 👀 About me: I love networking with Smart People, and would love to hear your story, what you do and what you're passioned about.
-- 💕 I have access to a network of SMEs,Talented proffesionals & Capital. My best skill is Creative Problem Solving.  
-- 📫 If you need support, advice or you're bothered by a difficult problem , contact me! I'm one message away 😉
+- 💕 I have access to a network of Talented Professionals, Subject Matter Experts & Capital. My best skill is Creative Problem Solving.  
+- 📫 If you need support, advice or you're bothered by a difficult problem ,contact me! I'm one message away always ready to support kind and passioned people.😉
 - 🔗 LinkedIn? Let's say Hi there!
 - 🤙 WhatsApp? Me too. +46720123475
